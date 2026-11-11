@@ -1,2 +1,0 @@
-# Marihuana
-Marihuana
